@@ -6,8 +6,8 @@
 
 💞️ I’m looking to collaborate on creating a time machine so I can finally catch up on all those Netflix shows.
 
-📫 How to reach me? Send a carrier pigeon. Just kidding! I'm on every social media platform simultaneously because multitasking is my middle name (actually, it's Eugene).
+📫 How to reach me? Send a carrier pigeon. Just kidding! I'm on every social media platform simultaneously because multitasking is my middle name.
 
-😄 Pronouns: He/him, she/her, they/them—whatever floats your ASCII boat!
+😄 Pronouns: He/him,they/them—whatever floats in your mind!
 
-⚡ Fun fact: Did you know that Ctrl + Alt + Delete was invented by a frustrated computer user who accidentally summoned a tech-savvy genie? True story!
+⚡ Fun fact: My life
