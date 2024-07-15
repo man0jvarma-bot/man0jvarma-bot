@@ -1,12 +1,13 @@
-- 👋 Hi, I’m @man0jvarma-bot
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+👋 Hi, I’m @man0jvarma-bot
 
-<!---
-man0jvarma-bot/man0jvarma-bot is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+👀 I’m interested in unraveling the mysteries of why printers always jam at the worst possible moment.
+
+🌱 I’m currently learning the ancient art of procrastination—I'll get back to you on that.
+
+💞️ I’m looking to collaborate on creating a time machine so I can finally catch up on all those Netflix shows.
+
+📫 How to reach me? Send a carrier pigeon. Just kidding! I'm on every social media platform simultaneously because multitasking is my middle name (actually, it's Eugene).
+
+😄 Pronouns: He/him, she/her, they/them—whatever floats your ASCII boat!
+
+⚡ Fun fact: Did you know that Ctrl + Alt + Delete was invented by a frustrated computer user who accidentally summoned a tech-savvy genie? True story!
