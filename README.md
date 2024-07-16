@@ -8,6 +8,6 @@
 
 📫 How to reach me? Send a carrier pigeon. Just kidding! I'm on every social media platform simultaneously because multitasking is my middle name.
 
-😄 Pronouns: He/him,they/them—whatever floats in your mind!
+😄 Pronouns: He/him—whatever floats in your mind!
 
 ⚡ Fun fact: My life
